@@ -1,2 +1,2 @@
-# Kaludherski.running.github.io
+# Kaludjerski.running.github.io
 Biografija Igora Kaludjerskog
